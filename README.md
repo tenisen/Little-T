@@ -1,2 +1,2 @@
 # Little-T
-Im really new to this one !
+I am rookie in this one .
